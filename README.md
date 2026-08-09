@@ -12,15 +12,9 @@
 
 1. I do not feel comfortable whenever someone steals or takes inspiration off my jokes or insults.
 
-2. I do not feel comfortable when somebody traces my art (I do not mind if it's just for anatomy practices ^^).
+2. I do not feel comfortable when somebody gets a BIT too close to me, even if we're close friends or best friends.
 
-3. Do not go ahead and tell me negative things, even if it's just a "joke" or "ragebait". I will not be hesitant to block you.
-
-4. Please do not make fun of my grammar, I am still trying to improve, as my vocabulary isn't that advanced TwT
-
-5. Do not steal parts of my designs, I worked hard to think for those, just so you know!
-
-6. I am a non-sharing Atreyos & Sprout yumeshipper, if you are a toxic double, respectfully do not interact.
+3. I do not feel comfortable when somebody steals the majority of my ideas and claims it as theirs (this happened twice btw) 
 
 <p align="center"> Okay, that's all I have to say in my boundaries list for now. So, let me continue talking about other stuff about me!
 
@@ -42,3 +36,19 @@ single. time. and I'm SICK of it.
 #
 
 <p align="center"> <img width="498" height="281" alt="4547" src="https://github.com/user-attachments/assets/54a02215-5218-4c98-9158-672434b980c1" />
+ 
+⠀<p align="center"> [![Typing SVG](https://readme-typing-svg.demolab.com?font=Delius&letterSpacing=Tight&duration=3000&pause=1000&color=EF6F5A&background=FFE58F00&multiline=true&width=200&height=90&lines=List+of+ex+friends%3F%3F%3F!!%3F;(Reasons+included))](https://git.io/typing-svg)
+
+<p align="center"> E, also known as Nova (or the so called "kind person", according to her bio.) 
+
+<p align="center"> Reason: Refused to respect my boundaries and proceeded to give me a raw apology in an attempt to regain my trust so that she can hurt my feelings again. Even attempted to guilt trip me by saying that I was the only person making her cry, which is funny because she sent me death threats over me accidentally killing her in Paint and Seek (I was the seeker, and killing others is the WHOLE PURPOSE OF BEING A SEEKER.), told me negative words for absolutely no reason, always copied parts of my OCS designs, making an OC which was meant to be one of the characters I yumeshipped with's girlfriend and again giving me a raw apology, forced me to teach her how to get avatar items in roblox that she didn't have but I did (sending me death threats if I didn't want to because it was a lot of work + she enjoys ragebaiting me, acting stupid which made me want to gatekeep), etc. Told my crush to DIE, and did many more terrible things that I'd rather not talk about. 
+
+⠀⠀⠀⠀⠀⠀⠀⠀
+
+⠀⠀⠀⠀
+
+
+
+<img width="1600" height="720" alt="4572" src="https://github.com/user-attachments/assets/ea34864a-5056-46bd-be8a-f3bde9dbf6f2" />
+
+<p align="center"> Autograph from my irl bsf (I'm Dizzy btw) 🥹🥹🥹
